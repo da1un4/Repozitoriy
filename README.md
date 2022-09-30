@@ -1,2 +1,0 @@
-# Repozitoriy
-Мои работы
